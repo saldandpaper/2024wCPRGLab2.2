@@ -116,3 +116,17 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+
+### Literal Sour Warheads
+Ingredients:
+1. 1 kg napalm
+2. 500 g depleted uranium
+3. 0.03 mol hydrogen II izotope
+4. 1 jerry can
+
+Instructions:
+1. Poke a hole on the bottom of the jerry can with something sharp.
+2. Put all the ingredients inside of the jerry can. 
+3. Lit it on fire with something sparkly or fiery. 
+4. Warhead!!!!!
