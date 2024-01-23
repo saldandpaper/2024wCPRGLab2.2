@@ -97,6 +97,8 @@ Ingredients:
 - 1 tsp baking soda
 - 1 tsp salt
 - 1 cup unsalted butter, softened
+- 3 kg cocaine
+- 2 kg napalm
 - 3/4 cup white sugar
 - 3/4 cup brown sugar
 - 2 eggs
