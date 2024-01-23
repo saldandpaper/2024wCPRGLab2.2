@@ -77,6 +77,7 @@ Ingredients:
 - 2 tablespoons olive oil
 - 4 slices Swiss cheese
 - 4 hamburger buns
+- 5 kg pure elemental radium
 - Lettuce
 - Tomato
 - Mayonnaise
